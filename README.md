@@ -1,0 +1,2 @@
+# DUSDTOKEN
+The core members of DUSD have an average of more than 10 years of Internet product development experience and continuous entrepreneurs. Johnson , the founder and CEO of DUSD, WBF Initiator, Founder of MICI, Founder of HUAZHI, traveled to more than 100 countries, senior advisor of Shenyang Municipal People's Government, and has more than 10 years of corporate executive experience.Registered in New York City, NY, DUSD is a dollar pegged stablecoin and plans to serve a worldwide client base. DUSD will be a regulated stabelcoin with the oversight of U.S. regulators. 
